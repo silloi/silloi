@@ -6,7 +6,7 @@ meaning "Know Thyself" in Greek.
 
 - Making the best use of ancient ideas -- like *the Analects* and *the Republic*.
 - Understand the phenomena of nature by simulating them with quantum mechanics.
-- Developing the potential of our living better, longer and younger.
+- Developing the potential of our living better, longer and younger with love.
 
 ## Experience
 
