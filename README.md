@@ -12,7 +12,8 @@ meaning "Know Thyself" in Greek.
 
 see also: [Resume | Portfolio](https://portfolio.silloi.com/resume/)
 
-- Web Engineer, teamLab Inc., Tokyo, Japan — April 2019 - Present
+- Engineer, Nota, Inc. / Helpfeel Inc., Kyoto, Japan - April 2022 - Present
+- Web Engineer, teamLab Inc., Tokyo, Japan — April 2019 - March 2022
 - Product Planning Part-Time, Hatena Co., Ltd, Kyoto, Japan — November 2016 - March 2019
 - Newspaper Reporter, Kyoto University Press, Kyoto, Japan — April 2015 - March 2017
 
